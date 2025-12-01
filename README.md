@@ -1,2 +1,3 @@
 # Thalita
-fofa, divertida, extrovertida,
+
+
